@@ -5,7 +5,7 @@
 
 Готов узнать, как скачать Kometa Casino на телефон и начать выигрывать? Погнали.
 
-➡️ **[СКАЧАТЬ APK](https://github.com/parbrir/kometamobile/blob/main/KOMETACasino.apk "СКАЧАТЬ APK")**
+➡️ **[СКАЧАТЬ APK](https://github.com/parbrir/kometaskachat/blob/main/KOMETACasino.apk "СКАЧАТЬ APK")**
 
 ➡️ **[ПЕРЕЙТИ НА ОФИЦИАЛЬНЫЙ САЙТ](https://clck.ru/3MmmAP "ПЕРЕЙТИ НА ОФИЦИАЛЬНЫЙ САЙТ")**
 
